@@ -1,0 +1,1 @@
+VTV Logos were created in 1995 including pointed V and square T, but the letters VTV are three colors red, green and blue. Additionally, there are numbers added to the logo from 1 to 9. VTV logos were modified at three times like in 1998 (changing colors), 2004 (Bow-shaped V and Triangular T) and 2013 (curved).
